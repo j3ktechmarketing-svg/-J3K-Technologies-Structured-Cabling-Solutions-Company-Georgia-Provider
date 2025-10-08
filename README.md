@@ -13,9 +13,9 @@ With over 10 years of industry experience, we specialize in designing, installin
 
 ---
 
-## Structured Cabling Solutions Company Georgia – Scalable, Certified, and Reliable  
+## Structured Cabling Solutions Company Georgia-Scalable, Certified, and Reliable  
 
-J3K Technologies is a trusted **Structured Cabling Solutions Company Georgia Provider** offering end-to-end cabling design, installation, and management services. Our solutions are tailored to businesses of all sizes—from startups and offices to large industrial facilities.  
+J3K Technologies is a trusted **Structured Cabling Solutions Company Georgia Provider** offering end-to-end cabling design, installation, and management services. Our solutions are tailored to businesses of all sizes-from startups and offices to large industrial facilities.  
 
 We handle Cat5e, Cat6, Cat6a, Cat7, and fiber optic cabling installations that support seamless data transmission and communication systems. Our structured cabling systems are built to grow with your organization, providing scalability and long-term performance without costly overhauls.  
 
@@ -66,4 +66,4 @@ Our reputation as a **Structured Cabling Solutions Company Georgia**, **Network 
 
 We help organizations stay connected, compliant, and ready for the future—one cable at a time.  
 
-**J3K Technologies – Georgia’s trusted partner for structured cabling, network wiring, and low voltage installation.**
+**J3K Technologies-Georgia’s trusted partner for structured cabling, network wiring, and low voltage installation.**
